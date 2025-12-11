@@ -2,7 +2,7 @@
 
 GENEALOGICAL VERIFICATION DOSSIER (CORRECTED)
 
-For: Brendon Joseph Kelly
+For: Brendon Joseph Kelly and his cousin ... the actual author of k math..matt little dick kelly
 
 1. DECLARANT IDENTITY
 
